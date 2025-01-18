@@ -1,3 +1,4 @@
+![IMG-20250118-WA0004](https://github.com/user-attachments/assets/ea513071-02fa-4bf0-b7dc-7e82a000d3ed)
 - 👋 Hi, I’m @Dick-297 de Don
 - 👀 I’m interested in ...working as a te
 - 🌱 I’m currently learning ...
